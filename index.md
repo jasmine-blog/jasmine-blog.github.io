@@ -1,5 +1,1 @@
-Here you can say lots of fun things about your site.
-
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+we thought we’d post the story of Jasmine and any updates in one place to keep family and friends updated and to have a record for our own memories and for her when she’s older of what a fighter she’s been
